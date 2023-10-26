@@ -1,6 +1,1 @@
-Harshu😇
-Sanskari😉💖 
-Intelligent tho😅
-Got many thoughts 🤔 in my head😅 
-Many ways to find myself in relationships🥰
-#INFP
+Hello everyone 👋😄, I'm Harsha and I floated here as you see.... I'm searching for bugs through the 🕸 Web, Programming and Solving, It's that I treat the bugs for the software, Getting witty and persuasive as I'm Solving myself 😄. I Love 😍: Photography📷🖼, Programming🤖, Thinking,Solving and more..., I'm also into: mythology💭💭, Nevermind to ask me a question, I will stay likewise as I'm also a curious little bug...trying to engulf the leaf of knowledge from the tree of wisdom 😋😉✨.
